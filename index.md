@@ -1,6 +1,7 @@
-###孔一超的个人主页:sweat_drops:
-
-You can use the [editor on GitHub](https://github.com/Jack-Kong-cyber/Jack-Kong-cyber.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
+孔一超的个人主页
+![GitHub Logo](/images/magick.png)
+Format: ![Alt Text](url)
+您可以使用[GitHub上的编辑器] （https://github.com/Jack-Kong-cyber/Jack-Kong-cyber.github.io/edit/main/index.md）维护和预览您的内容Markdown文件中的网站。
 
 Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
