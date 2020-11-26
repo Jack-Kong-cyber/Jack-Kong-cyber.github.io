@@ -19,9 +19,7 @@
 
 ## 强力推荐神圣的折纸艺术 [Origami]
 
- <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5ngl25HxUDKVcSzMvuWjNcXOydKjPKF*zSv71B*K.eRVFC0MYb.0jHOZqmaPtKOqhAU1p45B*eLOoFGOVi80VcI!/b&bo=OARRBAAAAAABB0k!&rf=viewer_4raw=ture"
- style="width:50%;text-align:center;padding:10px 10px;margin:10px;"
-alt="pose">
+![](http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5ngl25HxUDKVcSzMvuWjNcXOydKjPKF*zSv71B*K.eRVFC0MYb.0jHOZqmaPtKOqhAU1p45B*eLOoFGOVi80VcI!/b&bo=OARRBAAAAAABB0k!&rf=viewer_4) 
 
 
 
