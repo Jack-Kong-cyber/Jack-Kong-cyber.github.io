@@ -10,5 +10,4 @@
 
 ![](http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5gYaCTmWW5H3wrnmLFjEyJ8jbkT0BTDVEeBkZ26u57CFcKKNqd0uPHC.tdcCunHTZpLRhomaNYKe.NqeYxA.BZg!/b&bo=VQhABgAAAAADBzk!&rf=viewer_4)
 
-
-
+[南京理工大学官网](http://www.njust.edu.cn)
