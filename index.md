@@ -14,9 +14,9 @@
 
 ## 个人简介
  
- 本人英文名是**Jack** 
- QQ:**1454498852**
- 邮箱：**145498852@qq.com**
+ + 本人英文名是**Jack** 
+ + QQ:**1454498852**
+ + 邮箱：**145498852@qq.com**
  
 ## 我的校园
  
@@ -30,7 +30,7 @@
 
 ![](http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5qszBsPQ1qozyUGmzA9rZWSMk*GofZkG9EcQ6MQd5UXZAucjUF2vWndIG6s7qu3BjbfgVltVuZUFb8vPRvaT6Mg!/b&bo=OAQ4BAAAAAABByA!&rf=viewer_4)
 
-> 友情链接
+> 折友据点
 >> + ~~如果不对齐我可能会死~~
  + [折纸吧](https://tieba.baidu.com/f?kw=%D5%DB%D6%BD&fr=ala0&tpl=5)
  + 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”
