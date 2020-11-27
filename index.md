@@ -41,5 +41,8 @@
 
 + 玩玩小游戏[吃豆人](https://passer-by.com/pacman/)【开源】由passer-by.com制作
 + 直接上[b站](https://www.bilibili.com/)
++[对对联](https://ai.binwang.me/couplet/)作者：王斌
 + 学习它不香嘛==
+
+
 
