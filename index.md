@@ -36,4 +36,6 @@
  + 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”  
  
  <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5gYaCTmWW5H3wrnmLFjEyJ8jbkT0BTDVEeBkZ26u57CFcKKNqd0uPHC.tdcCunHTZpLRhomaNYKe.NqeYxA.BZg!/b&bo=VQhABgAAAAADBzk!&rf=viewer_4" width="50%">
+ 
+ <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5oqEXfK6zlhVzVFbDrNWP6QyHcSsFYH5mnCZnJlEsYFs*TGWkwuHmNlvsI7v1mYdekceyqDDvNe9PTG9KW0YP28!/b&bo=tQCmAAAAAAABBzM!&rf=viewer_4" width="50%">
 
