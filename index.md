@@ -37,7 +37,7 @@
 + [折纸吧](https://tieba.baidu.com/f?kw=%D5%DB%D6%BD&fr=ala0&tpl=5)
 + 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”
  
-## ~~旷工~~矿工茶馆 <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5o7Uhx8gqEd7lZiYeXJKpU*13iZWx85wGMpGfFUyeLL0gpgCPj1C1coFlbOI8TlViAoZTicJr6ifHgcO6*qmduU!/b&bo=oQGhAQAAAAABByA!&rf=viewer_4" width="3%">
+## ~~旷工~~矿工茶馆 <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5o7Uhx8gqEd7lZiYeXJKpU*13iZWx85wGMpGfFUyeLL0gpgCPj1C1coFlbOI8TlViAoZTicJr6ifHgcO6*qmduU!/b&bo=oQGhAQAAAAABByA!&rf=viewer_4" width="5%">
 
 + 玩玩小游戏[吃豆人](https://passer-by.com/pacman/)【开源】由passer-by.com制作
 + 直接上[b站](https://www.bilibili.com/)
