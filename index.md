@@ -44,5 +44,5 @@
 + [对对联](https://ai.binwang.me/couplet/)作者：王斌
 + 学习它不香嘛==
 
- <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5j9YSBpb31LW*AZ1M7EYzn71uLZf2PKi8dIEWKwkJj53zBVKZiXmYsapXB5Y7rdh0Bsnxz9s0BezTYKLD*MgGSg!/b&bo=ngDqAAAAAAACB1c!&rf=viewer_4" width="30%'>
+ <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5j9YSBpb31LW*AZ1M7EYzn71uLZf2PKi8dIEWKwkJj53zBVKZiXmYsapXB5Y7rdh0Bsnxz9s0BezTYKLD*MgGSg!/b&bo=ngDqAAAAAAACB1c!&rf=viewer_4" width="30%">
 
