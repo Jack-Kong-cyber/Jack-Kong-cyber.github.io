@@ -37,4 +37,8 @@
 + [折纸吧](https://tieba.baidu.com/f?kw=%D5%DB%D6%BD&fr=ala0&tpl=5)
 + 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”
  
+## ~~旷工~~矿工茶馆
 
++ 玩玩小游戏[吃豆人](https://passer-by.com/pacman/)【开源】由passer-by.com制作
++ 直接上[b站](https://www.bilibili.com/)
++ 学习它不香嘛==
