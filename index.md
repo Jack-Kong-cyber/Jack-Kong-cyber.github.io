@@ -29,9 +29,7 @@
 ## 强力推荐神圣的折纸艺术 [Origami]
 
  | >> 折友据点                                                         
-> + ~~如果不对齐我可能会死~~
- + [折纸吧](https://tieba.baidu.com/f?kw=%D5%DB%D6%BD&fr=ala0&tpl=5)
- + 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”  | <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5qszBsPQ1qozyUGmzA9rZWSMk*GofZkG9EcQ6MQd5UXZAucjUF2vWndIG6s7qu3BjbfgVltVuZUFb8vPRvaT6Mg!/b&bo=OAQ4BAAAAAABByA!&rf=viewer_4" width="50%"> |
+> + ~~如果不对齐我可能会死~~+ [折纸吧](https://tieba.baidu.com/f?kw=%D5%DB%D6%BD&fr=ala0&tpl=5)+ 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”  | <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5qszBsPQ1qozyUGmzA9rZWSMk*GofZkG9EcQ6MQd5UXZAucjUF2vWndIG6s7qu3BjbfgVltVuZUFb8vPRvaT6Mg!/b&bo=OAQ4BAAAAAABByA!&rf=viewer_4" width="50%"> |
  |  ----  |  ----: |
 
 
