@@ -26,16 +26,12 @@
 
 ---
 
-## 强力推荐神圣的折纸艺术 [Origami]
-
- ![](http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5qszBsPQ1qozyUGmzA9rZWSMk*GofZkG9EcQ6MQd5UXZAucjUF2vWndIG6s7qu3BjbfgVltVuZUFb8vPRvaT6Mg!/b&bo=OAQ4BAAAAAABByA!&rf=viewer_4)
+ | ## 强力推荐神圣的折纸艺术 [Origami]| <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5qszBsPQ1qozyUGmzA9rZWSMk*GofZkG9EcQ6MQd5UXZAucjUF2vWndIG6s7qu3BjbfgVltVuZUFb8vPRvaT6Mg!/b&bo=OAQ4BAAAAAABByA!&rf=viewer_4" width=""50%> |
+ |  ----  |  ----: |
 
 >> 折友据点                                                         
 > + ~~如果不对齐我可能会死~~
  + [折纸吧](https://tieba.baidu.com/f?kw=%D5%DB%D6%BD&fr=ala0&tpl=5)
  + 微信公众号：搜索“川渝折纸”/“折纸日常”/“折叠之间”  
  
- <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5gYaCTmWW5H3wrnmLFjEyJ8jbkT0BTDVEeBkZ26u57CFcKKNqd0uPHC.tdcCunHTZpLRhomaNYKe.NqeYxA.BZg!/b&bo=VQhABgAAAAADBzk!&rf=viewer_4" width="50%">
- 
- <img src="http://m.qpic.cn/psc?/V52EhUgX0YboDE1ze2qB0GEYU82zqMdY/ruAMsa53pVQWN7FLK88i5oqEXfK6zlhVzVFbDrNWP6QyHcSsFYH5mnCZnJlEsYFs*TGWkwuHmNlvsI7v1mYdekceyqDDvNe9PTG9KW0YP28!/b&bo=tQCmAAAAAAABBzM!&rf=viewer_4" width="50%">
 
